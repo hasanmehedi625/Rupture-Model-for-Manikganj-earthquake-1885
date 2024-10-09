@@ -1,0 +1,1 @@
+# Rupture-Model-for-Manikganj-earthquake-1885
